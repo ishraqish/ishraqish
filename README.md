@@ -6,4 +6,4 @@
 - Feel free to reach out to me!
 
 
-- Hobbies include making YouTube Videos ( History ), Movies, Gaming, F1, and Go Kart Racing.
+
